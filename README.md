@@ -1,3 +1,9 @@
+#### Want to contribute to BeyondCombustion?
+
+[Click here for info on how you can help contribute to BeyondCombustion.net!](https://BeyondCombustion.net/How-To-Contribute/)
+
+---
+
 - **In-Stock Alert Sites:** Not exactly an alternative, but a good strategy to get some iso. One example is nowinstock.net, but make sure to sign up for text alerts as these go fast. Another: [brickseek.com](https://brickseek.com) is great for checking walmart/target/cvs inventory
 - **Drinking Alcohols:** The higher the proof the better. The two most popular choices are to use Everclear (or any other high proof grain alcohol) and Bacardi 151 rum, both upwards of 70% alcohol by volume. They are both common liquors that you should be able to find in liquor stores, although some states and countries have restrictions on Everclear. Added bonus: reuse the alcohol that you use, it will work many times. Eventually you will have a very potent mixture than can be evaporated down to a tincture or all the way to just reclaim.
 - **Warm Water and Soap:** Not really much to talk about here, the hotter the water the better. As with all cleanings, make sure to rinse off any residue from the soap and let dry.
