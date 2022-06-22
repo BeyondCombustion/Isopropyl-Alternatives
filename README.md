@@ -8,7 +8,7 @@
 - Simple Green Crystal eco-friendly, powerful, cheap. Seems to be pretty good stuff!
 - d-Limonene Not necessarily but you just wouldn’t want to expose it to certain materials. On stainless steel, quartz, or glass it wouldn’t be corrosive but sillicone, rubber, nylon, and generally any plastics you would want to stick with alcohol. I would keep it far away from any electrical components/wiring but I would expect that is a given.
 
-### Regarding Limonene
+### Regarding d-Limonene
 
  If you’re cleaning a glass water pipe that’s dirty with resin/tars you could just 
  dump some straight in, swirl it around, add some hot water and shake it up more. 
